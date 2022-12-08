@@ -8,4 +8,3 @@ De estas experiencias puedo decir que he adquirido una gran capacidad para comun
 Soy una persona activa, adaptable y perseverante. 
 Considero como virtudes de mi personalidad, mi capacidad para comunicarme, junto a un gran compañerismo y predisposición a la resolución de problemas, involucrándome fuertemente en los objetivos de mi equipo.
 Creo firmemente que la disciplina es la base para lograr nuestros objetivos.
-En busqueda de aprendizaje y crecimiento continuo.
